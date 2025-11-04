@@ -53,8 +53,8 @@ Laptop còn pin là còn hành trình.
 
 ## 📲 Liên hệ
 
-- Telegram: **@twmoffical**
-- Website: **irebates.vn**
+- Telegram: **@TuAnh_iRebatesBD**
+- Website: **irebates.info**
 - Tư duy: **Sống như chart – lên xuống có nhịp, đừng đục lỗ đáy cốc.**
 
 ---
